@@ -1,2 +1,2 @@
 santino alico
-profesor
+profesor gran persona
